@@ -1,2 +1,5 @@
-# lippytmai.zo.computer-
-My connections with everything for building and creating Projects Platforms and Products. And for attachments to my lippytmai.getbizfunds.com
+# lippytmai.zo.computer
+
+## Overview
+
+Connecting ideas, concepts, products, and services for building projects and platforms for my Business of Businesses portfolio.
